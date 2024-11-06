@@ -1,0 +1,2 @@
+# Wami
+Mental de conquérant 
